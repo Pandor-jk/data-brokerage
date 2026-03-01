@@ -16,7 +16,7 @@
 - Annual Revenue
 
 ## Full List Available On Request
-Contact: pandora-sales@yourdomain.com
+Contact: Pandora_jk@outlook.com
 
 ---
 **Data Date:** March 2026
